@@ -1,4 +1,5 @@
-**HI, I'M NICAT GASIMOV** 🚀
+# 🧠 **HI, I'M NICAT GASIMOV** 🚀
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/nqsmv) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)]([https://linkedin.com/in/Nicat Qasımov](https://www.linkedin.com/in/nicat-qas%C4%B1mov-7668832b3/)) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@rgnicatt) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:nicatgasimov464@gmail.com) [![WebofScience]([https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FWeb_of_Science&psig=AOvVaw3JLMAjNbmAg-PKq19DNWTg&ust=1759673828454000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCMDvuf7dipADFQAAAAAdAAAAABAE))]([https://youtube.com/@rgnicatt](https://www.webofscience.com/wos/author/record/MTE-0016-2025))
 
